@@ -103,8 +103,8 @@ To become a developer known for building products that genuinely improve peopleâ
 
 ## ðŸ“¬ Connect
 
-* LinkedIn: *(add link)*
-* Portfolio: *(add link)*
+* LinkedIn: www.linkedin.com/in/keshrisuman24
+* Portfolio: https://skilldham.com/
 
 ---
 
